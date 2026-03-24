@@ -1,5 +1,5 @@
 # 💫 About Me:
- 👋 Assalamu Alaikum, I'm Shaik Ruheena Kausar<br><br>🌟 Turning innovative ideas into practical solutions using AI tools and modern technology.<br>🎓 CS Student @ VTU | 🚀 Hackathon Builder | 💡 Startup & Innovation Enthusiast<br><br> 💫 About Me<br><br>🔭 Working on innovative projects using AI tools<br>👯 Open to collaboration on creative tech ideas and hackathons<br>🌱 Exploring practical ways to build impactful solutions<br>⚡ I enjoy converting simple thoughts into practical projects<br><br>
+  👋 Assalamu Alaikum, I'm Shaik Ruheena Kausar<br><br>🌟 Turning innovative ideas into practical solutions using AI tools.<br>🎓 CS Student @ VTU | 🚀 Hackathon Builder | 💡 Startup & Innovation Enthusiast<br><br> 💫 About Me<br><br>🔭 Working on innovative projects using AI tools<br>👯 Open to collaboration on creative tech ideas and hackathons<br>🌱 Exploring practical ways to build impactful solutions<br>⚡ I enjoy converting simple thoughts into practical projects<br><br>
 
 
 ## 🌐 Socials:
